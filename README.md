@@ -1,1 +1,0 @@
-# side-mage-internship
